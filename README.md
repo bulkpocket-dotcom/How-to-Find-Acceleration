@@ -1,2 +1,2 @@
 # How-to-Find-Acceleration
-https://multicalculators.online/how-to-find-acceleration
+https://multicalculators.online/blog/how-to-find-acceleration
